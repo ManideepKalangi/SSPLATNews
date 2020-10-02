@@ -1,2 +1,2 @@
 "# SSPLATNews" 
-Video link https://drive.google.com/file/d/1BV2L7bT5Mj4iKetSmm3DB9EIaglWU-Qz/view?usp=drivesdk
+Video link https://drive.google.com/file/d/1foCfJf3pMa4jnJvd31GR3aa6raMpq_Lk/view?usp=sharing
